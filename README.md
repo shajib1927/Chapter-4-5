@@ -1,0 +1,12 @@
+# Chapter-4-5
+
+  4. ve 5. Bölümün alıştırma ve soruları
+  
+  4.1 demek 4. bölümün 1. soru
+  5.1 demek 5. bölümün 1. soru
+  böyle toplam 10 sorunun cevabi var
+  
+ 
+ - MD SHAHREAR AHMED SHAJIB
+  Öğrenci numara:  190290618
+    
