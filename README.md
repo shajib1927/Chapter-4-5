@@ -8,7 +8,6 @@
   
   böyle toplam 10 sorunun cevabi var
   
- 
- - MD SHAHREAR AHMED SHAJIB
-  Öğrenci numara:  190290618
+ MD SHAHREAR AHMED SHAJIB
+ Öğrenci numara:  190290618
     
